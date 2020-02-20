@@ -10,4 +10,5 @@ These are a few of my favorite things:
 - Sleep hehe
 - Daisy hehe not food
 - Food
-- tea
+- Tea
+- Hello Wendell
